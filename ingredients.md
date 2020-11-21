@@ -1,0 +1,1 @@
+Ingredients needed are : Uncooked Rice, Water, Salt, Oil, Cumin Seeds. 
